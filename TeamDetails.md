@@ -1,3 +1,5 @@
+Please correct any errors.
+
 Phillip Moss
 0429 804324
 kusumura
@@ -17,4 +19,11 @@ Dawoozles
 Jaryie Wong
 04066 26762
 ArgaBarga (currently, I still can not access my Discord)
+Jaryie.Wong@studytafensw.edu.au
+
+OneDrive Shared Files
+https://tafensw-my.sharepoint.com/:f:/g/personal/jaryie_wong_studytafensw_edu_au/Ep0o8ReCDOlNvqhawSYY9DwBzomn8sgcc5FqHyI-qz7-GA?email=sienna.muga%40studytafensw.edu.au&e=o0TSCn
+
+For access to the shared one drive, I'll need your Tafe email
+
 
